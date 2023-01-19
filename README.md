@@ -1,3 +1,3 @@
 # ICP-2
-ALready explained in class 
+Already explained in class 
 Name : venkata sai boinepally 
